@@ -1,0 +1,1 @@
+# resolusi_setahun_kedepan
